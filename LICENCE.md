@@ -1,4 +1,5 @@
-<img width="686" height="386" alt="image" src="https://github.com/user-attachments/assets/7a39a253-4821-4ecf-b33f-7f2309463dc4" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/b2ae2a7a-a09f-4ec4-95d5-000b8f6ec500" />
+
 
 
 # STEAL A BRAINROT MENU 2026 - Download Best SAFE Steal a Brainrot Tool with Auto Steal & ESP
